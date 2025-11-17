@@ -6,3 +6,5 @@
 This is why I love UPE:
 - Its fun 
 - It's informative!
+#### Favorite Drink:
+- Iced Sugarfree protein latte
